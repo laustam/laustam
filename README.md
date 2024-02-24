@@ -1,2 +1,2 @@
 Hey, I'm Laura 👋
-Computer Science student @ Vrije Universiteit Amsterdam
+Computer Science student and teaching assistant @ Vrije Universiteit Amsterdam
